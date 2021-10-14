@@ -1,0 +1,1 @@
+In today's online world customers prefer to buy a product only after carefully analyzing the available reviews. And the products with more positive rankings are likely to be trusted more by the customers.Product reviews and feedback are valuable sources of information to the companies who want to grow their company, brand and improve customer loyalty
